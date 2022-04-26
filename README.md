@@ -2,7 +2,7 @@
 
 *Tengo 15 años*.
 *Estudio en a E.E.S.T N°7 de Quilmes (IMPA)*.
-*Estos cursando 4°2° Aviónica*.
+*Estoy cursando 4°2° Aviónica*.
 
 ## Mas sobre mi:
 
