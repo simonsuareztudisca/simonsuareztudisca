@@ -8,8 +8,8 @@
 
 ## Mas sobre mi:
 
-*En mi tiempo libre, me suelo juntar con amigos o ver series o peliculas en netflix*
+* *En mi tiempo libre, me suelo juntar con amigos o ver series o peliculas en netflix*
   
-*Mis hobbies son tenis y atletismo*
+* *Mis hobbies son tenis y atletismo*
   
-*Me gusta mucho viajar*
+* *Me gusta mucho viajar*
