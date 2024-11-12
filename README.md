@@ -1,6 +1,6 @@
 <h2>Hola, soy Suarez Tudisca, Simón!
 
-*Tengo 16 años*.
+*Tengo 18 años*.
   
 *Estudio en a E.E.S.T N°7 de Quilmes (IMPA)*.
   
